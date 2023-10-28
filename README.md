@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @HaletaEthiopia
-- 👀 I’m interested in ... nothing 
+- 👋 Hi, I’m @Haleta 🇪🇹 
+
